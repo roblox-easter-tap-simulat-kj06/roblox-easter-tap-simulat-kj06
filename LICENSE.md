@@ -1,4 +1,4 @@
-
+Experience roblox kaizen like never before with secure Scripts for roblox kaizen, the #1 Script. Includes custom skins and no clip for unbeatable
 
 
 ---
